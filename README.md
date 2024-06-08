@@ -105,8 +105,8 @@ Family accounts allow parents to monitor their children's progress and manage pa
 
 Feel free to reach out to me for more information or any queries related to this project.
 
-- **Email**: [sayed.work223@gmail.com ](mailto:sayed.work223@gmail.com)
-- **LinkedIn**: [Sayed Elmahdy](https://www.linkedin.com/in/sayed-elmahdy365/)
+- **Email**: [abdulsayedd@gmail.com ](mailto:abdulsayedd@gmail.com)
+- **LinkedIn**: [Mohammed Abdulsayed](https://www.linkedin.com/in/abdulsayed/)
 
 ---
 
